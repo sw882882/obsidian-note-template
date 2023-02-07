@@ -1,0 +1,1 @@
+/Users/andrewseungwanwee/Documents/obsidian/Notes/Daily Template.md
